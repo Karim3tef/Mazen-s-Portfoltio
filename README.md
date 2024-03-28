@@ -1,2 +1,2 @@
 # Friend-s-Portfolio
-For this project, my friend requested that I enhance and edit his portfolio.
+My Firend Mazen asked me to edit and contribute in his website to modify sections and make it more interactive.
