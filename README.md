@@ -1,2 +1,2 @@
 # Friend-s-Portfolio
-My Firend Mazen asked me to edit and contribute in his website to modify sections and make it more interactive.
+Mazen, my friend, has entrusted me with the task of enhancing his website. My responsibility is to revamp and modify its sections to make it more engaging and user-friendly. I am confident that my skills and expertise will contribute to making his website stand out in the digital world.
